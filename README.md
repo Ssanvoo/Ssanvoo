@@ -1,5 +1,5 @@
 # 💫 About Me:
-Currently working on Minsait (Indra)
+Currently improving my coding skills!
 
 
 ## 🌐 Socials:
